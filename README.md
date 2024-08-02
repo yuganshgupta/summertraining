@@ -1,1 +1,1 @@
-# summertraining
+# SUMMER TRAINING AI ML (2024)
